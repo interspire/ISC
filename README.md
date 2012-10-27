@@ -1,4 +1,4 @@
 ISC
 ===
 
-Interspire Shopping Cart continued by interspiresource.com
+Interspire Shopping Cart continued by www.interspiresource.com
